@@ -1,1 +1,0 @@
-# AICTE-internship-AI-driven-smart-building-energy-management
